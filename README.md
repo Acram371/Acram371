@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...games
 - 🌱 I’m currently learning ...java
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...lumuacraba3@protonmaol.com
+- 📫 How to reach me ...lumuacraba3@protonmail.com
 - 😄 Pronouns: ...He
 - ⚡ Fun fact: ...Am an introvert
 
